@@ -1,2 +1,0 @@
-# SalvatorArcuri
-FRIENDS LIST
